@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Chernika56
 - 🌱 I’m currently learning in BSUIR
-- 📫 How to reach me (https://t.me/chernika_56), bosko.working@mail.ru
+- 📫 How to reach me https://t.me/chernika_56, bosko.working@mail.ru
